@@ -1,18 +1,6 @@
 ---
 layout: page
-title: About
+title: About Moklia
 permalink: /about/
 ---
-
-This is a gardening website
-
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
-
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
-
-
-[jekyll-organization]: https://github.com/jekyll
+Hello, I'm Moklia. A seasonal gardener, a full time researcher & learner. 
