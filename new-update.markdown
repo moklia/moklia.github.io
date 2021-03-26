@@ -6,7 +6,8 @@ categories: jekyll update
 ---
 
 
-## Something new for this year = 
+## Something new for this year =
 
 
-### I determined to be less ambitious on crop species. 
+### I determined to be less ambitious on crop species.
+So far, I've ordered some packages of seed from Etsy, which are Scallions, Shanghai Bok Choy (Chinese veggies!!), Midori Giant Japanese Edamame Soy Bean, and Noble Giant Spinach.
