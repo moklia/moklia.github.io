@@ -4,7 +4,6 @@ title: About Moklia
 permalink: /about/
 ---
 
-## Who is Moklia? 
 
 Hi, I'm Moklia, a seasonal gardener and full time learner. 
 
