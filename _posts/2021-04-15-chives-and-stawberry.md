@@ -1,7 +1,7 @@
 ![Chives-and-strawberry](https://user-images.githubusercontent.com/79727789/115076129-5a890680-9eb9-11eb-9d84-dd88f589a015.jpeg)
 
 
-I started to see the chive seedlings two days ago. By that time I wasn't 100% sure whether they are really my over winter chives or they are just random weed??(this has always been my concern as a gardener).
+The growing season on the prairie haven't officially srart yet; however, I have started to see the chive seedlings two days ago. By that time I wasn't 100% sure whether they are really my over winter chives or they are just random weed??(this has always been my concern as a gardener).
 This has been confirmed by a taste today:)
 
 Oh, forget to say, I am growing flat blade chives. I assume the cylindrical hollow leaves chives are easier to be identified from weeds compared to the flat blade ones. 
