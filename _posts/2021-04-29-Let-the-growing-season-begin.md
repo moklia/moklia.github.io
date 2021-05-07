@@ -1,7 +1,7 @@
 
 <img width="1143" alt="Let_the_growing_season_begin" src="https://user-images.githubusercontent.com/79727789/116654101-b9349280-a945-11eb-8a54-26bdd6b36421.png">
 
-We are having a dry spring on the prairie this year, even without receiving enough rainfall, I finally decide to let the growing season begin in my tiny plot. Hopefully my seeds can survive our night temperture. Today is April 29. 
+We are having a dry spring on the prairie this year, even without receiving enough rainfall, I finally decide to let the growing season begin in my tiny plot. Hopefully my seeds can survive our night temperature. Today is April 29. 
 
 Pioneers here I have including the following: 
 * Garlic chives
