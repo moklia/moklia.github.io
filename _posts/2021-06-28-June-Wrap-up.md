@@ -1,4 +1,4 @@
-I know it has been a while since my last update... Let me try not to abandon this site from now on. 
+I know it has been a while since my last update... but this does not mean I stopped gardening. 
 
 June has been a fruitful month for me, gardening wise, although mother nature is not as generous as she always is --- we technically had our last frost (0.9C in Sasakatoon for about 2 hours) on June 21st. Luckly nothing in my plot was touched. 
 
@@ -15,8 +15,8 @@ I did invested for a bird netting, and seems like none of my fruit get lost so f
 Regarding the cultivar of my stawberry, I am not sure to be honest. I get them free from a friend, will check with her next time we meet. But I assume they are June berry as they bear berries in June. 
 
 ## Spinach
-![WechatIMG9](https://user-images.githubusercontent.com/79727789/123739296-a36b1d00-d863-11eb-8296-44c4f79aac41.jpeg)
-
+![WechatIMG10](https://user-images.githubusercontent.com/79727789/123739627-31470800-d864-11eb-8465-17de7dd34ede.jpeg)
 
 I enjoy eating spinach, and have been very lucky with growing spinach since my first attempt (throw back to year 2018). I often eat cooked spinach, this way may sound weird to you. 
 
+As I said before, I ordered spinach seeds online and hoped they were Taiwan variety that I consumed back home. But it turned out I see no diffiences 
