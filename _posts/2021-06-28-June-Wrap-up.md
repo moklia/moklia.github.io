@@ -25,7 +25,7 @@ If you still remember, I ordered Norbal Giant spinach seeds online and hoped the
 ![WechatIMG11](https://user-images.githubusercontent.com/79727789/123884387-5b520600-d908-11eb-83f1-5fef8fa8a25d.jpeg)
 
 
-Lettuce was not on my planting list until I received a bonus package of seed from my order. On top of that, I received another free package of lettuce seed from a local library's seed exchange program on May 21. The seeds were packed in year 2019, with an astonishing high germination rate.
+Lettuce was not on my planting list until I received a bonus package of seed from my order. On top of that, I received another free package of lettuce seed from a local library's seed exchange program on May 21. The seed exchange seeds were packed in year 2019, with an astonishing high germination rate.
 
 ![WechatIMG12](https://user-images.githubusercontent.com/79727789/123884868-7bce9000-d909-11eb-90ab-18922eeb1387.jpeg)
                                 **Scillion among the back row if you can see**
