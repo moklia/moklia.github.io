@@ -1,0 +1,14 @@
+<img width="1130" alt="Screen Shot 2021-07-10 at 10 44 17 AM" src="https://user-images.githubusercontent.com/79727789/125170418-36f9f300-e16c-11eb-9602-95cfcf7adafe.png">
+Seems like we are expecting another hot week. We are experiencing extreme weather on the prairie this year. Cannot remember how many heat warning day had happened since May. 
+But personally, I appreciate these bonus hot days, hope this is an asset for my edamame beans (no flower so far, forget to take a picture this morning).
+
+![WechatIMG17](https://user-images.githubusercontent.com/79727789/125170512-9821c680-e16c-11eb-8ce7-1bb63b60d243.jpeg)
+I did more harvest for leafy veggies these days. I believe it is good timing (or already a bit over?) to have them wrapped up before they bolt. My poor little lettuce, they have already become extremely bitter.
+Surely not sharable anymore. Let us be positive here (attitude-wise not covid): I harvest my first vine ripen tomato last week. To me, it looks like a cute heart in the middle of my basket :heart:
+
+I transplanted the mother plant after the first fruit was set off. Cracking on its skin, thanks to the physical stress (wind burn very likely).
+
+![WechatIMG19](https://user-images.githubusercontent.com/79727789/125171062-69f1b600-e16f-11eb-841e-db793225a1a0.jpeg)
+
+
+My fresh cut camomile has been living in a vase size mug for 6 days, still very vigorous with pleasant smell ---so satisfying 😌 On top of that, I added in more cilantro flower. These are from my volunteer vilantro plants. Try to birth control on them by picking them up at flower stage. 
