@@ -6,3 +6,5 @@ He believes there must be an intrude spot on the leaf for disease, rust evenly d
 
 I had about 150gram harvest (before shelling)at the beginning of the week, followed by 717gram harvest. So basically, only 1/2 of the harvest is edible. Looking forward to another massive harvest next week. 
 ![WechatIMG24](https://user-images.githubusercontent.com/79727789/126045564-1560055b-86c8-45d9-b9d8-b4fcd8f37c54.jpeg)
+
+I do grocery planning on Saturdays, and elated to announce I don't need to buy much for next week as I will be having home grown lettuce (already in fridge), cucumber, peax potato ready to eat for next week! 
