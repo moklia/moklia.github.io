@@ -1,6 +1,6 @@
-Must say I've been very lucky this year with pea growing. Because of the known unusual heat this year on the prairie, I could tell cool season leugme crop suffered. Thankfully I decided not to grow bean before the season begins, I observed flower die out before bloom in other gardeners' plots.
+Must say I've been very lucky lately with pea growing. Because of the known unusual heat this year on the prairie, I could tell cool season leugme crop suffered. Thankfully I decided not to grow bean before the season begins, I observed flower die out before bloom in other gardeners' plots.
 
-Other than the bean, some of my gardening pals' pea also suffered--- symptoms like yellow out or non-plump pod. Mine showed one symptom as well: rust around the edge of each leave. I've consulted my friend (he is on the way grow into a plant pathologist) about the suspicious symptom. My friend diagnosed as physical stress instead of disease. 
+Other than the bean, some of my gardening pals' pea also suffered--- symptoms like yellow out or non-plump pod. Mine are doing good in general, my trick is to give them a generous drink each day; however, there is one symptom showed on my peas as well: rust around the edge of each leave. I've consulted my friend (he is on the way grow into a plant pathologist) about the suspicious symptom. My friend diagnosed as physical stress instead of disease. 
 He believes there must be an intrude spot on the leaf for disease, rust evenly distributes along the edge is more likely to be physically stressed. Other than the leaves, my pea pods look 100% healthy. 
 ![WechatIMG25](https://user-images.githubusercontent.com/79727789/126045275-faca46e8-6ee8-4da6-814e-cd048928d087.jpeg)
 
