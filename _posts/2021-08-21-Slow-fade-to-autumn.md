@@ -1,4 +1,4 @@
-I went on a long trip since 7.29. By the time I left, it was the peak of the summer, everything in the garden was all stunning. The garden was so hard to left behind, I stayed there until the last minute before my trip. 
+I went on a long trip since 7.29. By the time I left, it was the peak of the summer, everything in the garden was all stunning. The garden was so hard to left behind, I stayed there until the very last minute before my trip. 
 ![WechatIMG40](https://user-images.githubusercontent.com/79727789/130333401-16fc9c6e-60ca-4a53-8f75-ca8b173ac5b0.jpeg)
 
 **Those were the fresh harvested produce on that morning**
