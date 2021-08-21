@@ -3,7 +3,7 @@ I went on a long trip since 7.29. By the time I left, it was the peak of the sum
 
 **Those were the fresh harvested produce on that morning**
 
-The feeling of the garden was completely different by the time I was in my garden again, that day was 8.9. Everything was covered by a fall look: the browning coriander, overripen fruits on bushy tomato plants, low headed sunflowers... (round 2 pea seedlings came out as expected, but not quite for baby bok choy and spinach) 
+The feeling of the garden was completely different by the time I was in my garden again, that day was 8.9. Everything was covered by a fall look: the browning coriander, overripen fruits on bushy tomato plants, low headed sunflowers... (snow pea seedlings came out as expected, but not quite for baby bok choy and spinach) 
 Although my plot was under precious care by a friend... You know what, I was so disappointed because I felt I've missed the best time of the season. 
 As a gardener, I was determined to record every stage of my crops. 
 
