@@ -1,14 +1,14 @@
-I haven't talked too much about my tomatoes this year, partial me think they are too common. But tomatoes are truly one of a kind which is underappreciated by me. I bet every gardener had dealt with this crop at some level deal to its versatility. 
+I haven't talked too much about my tomatoes this year, partial because I think they are too common. But tomatoes are truly one of a kind that is underappreciated by me. I bet every gardener had dealt with this crop at some level deal to its versatility. 
 
-I had a fancy hanging string for my tomato vines last year, the design was inspired by how greenhouse tomato grows. 
+I had a fancy hanging string for my tomato vines last year, the design was inspired by how greenhouse tomato are grown. 
 ![WechatIMG45](https://user-images.githubusercontent.com/79727789/131264366-7bdc7d7d-9299-4067-9d84-eddc623c14dc.jpeg)
 **Fancy hanging string year 2020**
 
-Last year I also had too many tomatoes planted... well, I know you may say "you can never have too many tomatoes"... but the truth on the prairie here is, you won't harvest tomato grdually over the season. You are most likely to get them ALL from late July to the frost. 
+Last year I also had too many tomatoes planted... well, I know you may say "you can never have too many tomatoes"... but the truth on the prairie here is, you won't harvest tomato grdually over the season. You are most likely to get them ALL from late July to the first frost. 
 
-I was hoping to limit my tomato plant this year; however my generous gardening pal offered me way more free plants than I planned...meanwhile, it was so hard for a gardner to say "no" to baby seedlings, right... so I ended up with 10+ tomato plants in both my own plot and the public plot (in the public plot, we can grow and donate to church congregation. 
+I was hoping to limit my tomato plant this year; however my generous gardening pal offered me way more free plants than I planned...meanwhile, it was so hard for a gardner to say "no" to baby seedlings, right... so I ended up having 10+ tomato plants in both my own plot and the public plot (in the public plot, we grow and donate the crops to church congregation). 
 
-Last year, I was mainly focused on growing mid-sized tomatoes (< 10oz) like [bush early girl](https://www.earlysgarden.com/tomatoes/bush-early-girl-hybrid) as I was keen on having early fruits. This year, other than mid-sized tomatos, I tried cherry tomato (tiny sized, suppose to have a very early harvest) and slicer tomato (quite large and late harvest), which was very successful. If I am being brutally honest here, I have to tell you that for some reasons, even my vine ripen mid-sized tomatoes do not have excellent taste when eating directly. Overwatering was the cause I suspect. But they still make awesome pasta sauce when cooked. 
+Last year, I was mainly focused on growing mid-sized tomatoes (< 10oz) like [bush early girl](https://www.earlysgarden.com/tomatoes/bush-early-girl-hybrid) as I was keen on having early fruits. This year, hoever, other than mid-sized tomatos, I tried cherry tomato (tiny sized, suppose to have a very early harvest) and slicer tomato (quite large and late mature), which was very successful. If I am being brutally honest here, I have to tell you that for some reasons, even my vine ripen mid-sized tomatoes do not have excellent taste as salad. Overwatering was the cause I suspect. But they still make awesome pasta sauce when cooked. 
 
 ## Sliced tomato
 
