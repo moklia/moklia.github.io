@@ -1,12 +1,13 @@
-Once again, I started 6 edible sunflower seeds indoor after seed inventory this morning. Prairie gardeners, you know, have to compromise on the climate with smaller fruit for many crops, including ediable sunflowers. Or I should simply say that I am not a big fan of the prairie sunflower---tastewise. But I like the fact that sunflowers are extraditionary food source for our hardworking pollinators. I've been observing chubby bumblebees carrying yellow pollen on their tiny legs many times buzzing on my sunflowers during the last growing season. 
+## Sunflower
+Once again, I started 6 edible sunflower seeds indoors. This was done after my seed inventory this morning. Prairie gardeners, admit it, we always have to compromise on the climate with smaller fruits. (Sour cherry, crabapple, etc...) Also, edible sunflowers. Or I should simply say that I am not a big fan of the prairie sunflower seeds---tastewise. Even so, I really like the fact that sunflowers seeds are extraditionary food source for our hardworking pollinators. I've been observing chubby bumblebees carrying yellow pollen on their tiny legs many times buzzing on my sunflowers during the last growing season. 
 
 
-Jonny jump-up 
-didn't make it last year on my north-facing balcony. Too much direct sunlight also .. then I had to buy mature plant from a commerical greenhouse 
+## Jonny jump-up 
+They didn't make it to the blooming stage last year on my north-facing balcony. They germinated, hung in there for a while, then I moved them into my plot within the community garden. It turned out too much direct sunlight also wasn't a good idea, as they all pass out.. then I had to pick up some mature plants from a commercial greenhouse. They all thrive on my balcony then. 
 
 
-Lettuce 
-Lettuce aren't included in my diet, but I received free lettcue seedlings from my friend last year. 
+## Lettuce 
+Lettuce isn't my favourite, but I received free lettuce seedlings from my gardening pal last year. 
 
-I was too greedy ... bitter with the summer ramp up... not edible anymore 
+This year again, I got lettuce seeds as a freebie. Therefore, lettuce again will make its way to my plot. 
 
