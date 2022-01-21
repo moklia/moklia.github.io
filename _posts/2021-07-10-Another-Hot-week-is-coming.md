@@ -11,5 +11,7 @@ I transplanted the mother plant after the first fruit was set off. Cracking on i
 
 ![WechatIMG22](https://user-images.githubusercontent.com/79727789/125171545-0ddc6100-e172-11eb-98d8-7514007b8a56.jpeg)
 
-My fresh cut camomile has been living in a vase size mug for 6 days, still very vigorous with pleasant smell ---so satisfying 😌 On top of that, I added in more cilantro flower. These are from my volunteer vilantro plants. Intend to birth control on them by picking them up at flower stage. One of my sunflow is bloom as well. 
+My camomile has been living in this displaying mug for 6 days, still very vigorous with pleasant smell ---so satisfying 😌 On top of that, I added in more cilantro flower. These are from my volunteer cilantro  (I call them "vilantro") plants. Intend to birth control on them by picking them up at flower stage. 
+
+Plus, one of my sunflow is blooming 🥰 
 
