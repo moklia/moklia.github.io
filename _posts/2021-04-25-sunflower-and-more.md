@@ -1,4 +1,4 @@
-I've planted 6 edible sunflower seeds indoor after my seed inventory this morning. Prairie gardeners, you know, have to compromise the climate with smaller fruit for many crops, including sunflower seeds. Or I should simply say that I am not a big fan of the prairie sunflower---tastewise. But I like the fact that sunflowers are extraditionary food source for our hardworking pollinators. I've been observing chubby bumblebees carrying yellow pollen on their tiny legs many times buzzing on my sunflowers during the last growing season. 
+Once again, I started 6 edible sunflower seeds indoor after seed inventory this morning. Prairie gardeners, you know, have to compromise on the climate with smaller fruit for many crops, including ediable sunflowers. Or I should simply say that I am not a big fan of the prairie sunflower---tastewise. But I like the fact that sunflowers are extraditionary food source for our hardworking pollinators. I've been observing chubby bumblebees carrying yellow pollen on their tiny legs many times buzzing on my sunflowers during the last growing season. 
 
 
 Jonny jump-up 
