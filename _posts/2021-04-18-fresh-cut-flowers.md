@@ -14,12 +14,12 @@ One day, I may pull myself together to give cosmos another try, but definitely n
 
 ## Back to this year's candidates:
 
-* Camomile:
+### Camomile:
 I've been growing camomile as a herb in the past two years and used them as tea. But somehow I don't really enjoy the taste of it, which almost stop me from putting into my plot again this year. One day, I was inspired by a random picture of a flower bouquet, in that picture, the folrist had put the camomile into a vase. This picture surely triggered a ta-da moment in my brain. What a genius idea!! Camomile in my opinion is so cheap (a seed pack comes with more than 100 seeds and only costs $1.99 CAD),easy to grow and care for. Even the growing instruction suggests to satrt indoor 6-8 weeks before the last frost, but they thrived last year after direct seeded practice. 
 
-* Dwarf carnation:
+### Dwarf carnation:
 Carnation is another type of fresh cut flower I find has long vase life. I've never image myself growing carnation before I find this dwarf species. It also recommends start seeds indoor 6-8 weeks ahead of time. 
 
 
-* Zinnia:
+### Zinnia:
 0 experience, will play by ear. 
