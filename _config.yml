@@ -21,7 +21,7 @@
 title: Moklia's Little Garden
 email: moklia.gardening@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
- A gardner's recording and sharing from prairies, zone 3b. 
+ A gardner's recording and sharing from Canadian prairies (zone 3b). 
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: jekyllrb
