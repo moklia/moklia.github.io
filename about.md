@@ -4,10 +4,6 @@ title: About Moklia
 permalink: /about/
 ---
 
-![Moklia](https://user-images.githubusercontent.com/79727789/150616270-339abc8e-91fc-401d-bd44-3840268557c1.jpeg)
-
- 
-
 
 Nice to meet you! I’m Moklia, a nature enthusiast who works with plants in a research environment.
 
@@ -17,5 +13,5 @@ Click here to check out my gardening progress on Instragram [moklia.gardening](h
 
 
 
-
 Thanks for visiting!
+![Moklia](https://user-images.githubusercontent.com/79727789/150616270-339abc8e-91fc-401d-bd44-3840268557c1.jpeg)
