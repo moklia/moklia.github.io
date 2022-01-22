@@ -3,9 +3,10 @@ layout: page
 title: About Moklia
 permalink: /about/
 ---
- 
-![WechatIMG13](https://user-images.githubusercontent.com/79727789/123886630-1ed4d900-d90d-11eb-8b22-7f23db89a35b.jpeg)
 
+![Moklia](https://user-images.githubusercontent.com/79727789/150616270-339abc8e-91fc-401d-bd44-3840268557c1.jpeg)
+
+ 
 
 
 Hi, I'm Moklia, a nature enthusiast who also makes a living with plants. 
