@@ -1,6 +1,6 @@
 Now it's May of the year again, I finally realize why last year's May was a complete white off (no post for the entire month). It is (was) because I am (was) busy planting. There is so much happening right now, and so much to do. It's just so hard to balance doing work with finding time to sit down and share the work. But by writing this post now, I am proud to say "I made it!". 
 
-This year is even busier for me on top of everthing else, as the Horticulture club I am involving (it's a student union I have been part of since my undergarates and I am still with them now) is resuming and we are planting at both the horticulture field and the roof top graden on campus. Thanks to the restrction lifting!
+This year is even busier for me on top of everthing else, as the Horticulture Club I am involving (it's a student union I have been part of since my undergarates and I am still with them now) is resuming and we are planting at both the horticulture field and the roof top graden on campus. Thanks to the restrction lifting!
 
 Ok, let's focus on talking about my plot:
 
@@ -16,7 +16,7 @@ Those are what I have for the year:
 * Strawberry 
 * Black krim tomato x4
 * Juliet tomato x3 
-* Tumbler tomato x2
+* Tumbler tomato x3
 * Jalapeno pepper x3
 * Cosmos (from transplant, already in bloom)
 * Edemame bean
@@ -25,7 +25,7 @@ Those are what I have for the year:
 * Lettuce 
 * Snow pea and __pea 
 
-Ah, I am more ambitious than I thought I am.  
+Ah, I am more ambitious than I thought I am. I will be having 10+ tomatos this year again but sadly I probably missed out the type I would eat the most (which I make dishes out of). 
 
 ### Strawberry 
 
@@ -35,7 +35,7 @@ They are producing a lot more blooms than last year due to the fact that they ar
 
 ### Zebra green tomato
 
-I got these babie tomato seedlings from what left after we planted the roof top garden. It's a new cultivar to me, and I am always happy to try out new crops (grow +taste). The photo on right is how the fruits would look, the photo is downloaded from here [Zebre tomato](https://www.growjoy.com/store/pc/Green-Zebra-Tomato-Plant-p9078.htm)
+I got these babie tomato seedlings from Horticulture Club from what left after we planted the roof top garden. It's a new cultivar to me, and I am always happy to try out new crops (grow +taste). The photo on right is how the fruits would look, the photo is downloaded from here [Zebre tomato](https://www.growjoy.com/store/pc/Green-Zebra-Tomato-Plant-p9078.htm)
 ![zebra-green](https://user-images.githubusercontent.com/79727789/170898380-7d60abb8-1b8c-4f7f-9f7d-a25f89b56145.jpg)
 
 According to the production description, zebra green has tart flavor, good for salad or sandwitch. It's look and flavor really reminds me of the tomatillos. I guess it might not be the best fit for my diet, but well worth to try out. 
