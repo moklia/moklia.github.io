@@ -17,6 +17,8 @@ Those are what I have for the year:
 * Black krim tomato x4
 * Juliet tomato x3 
 * Tumbler tomato x3
+* White Tomesol Tomato x2
+* Barry's crazy cherry tomato x2
 * Jalapeno pepper x3
 * Cosmos (from transplant, already in bloom)
 * Baby bok choy (struggle to fight with flee bettles)
