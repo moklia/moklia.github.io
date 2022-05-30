@@ -7,7 +7,7 @@ Ok, let's focus on talking about my plot:
 I am being a bit less gung ho this year in terms of what to plant and how to plant in my plot. But still, by yesterday, I have everything other than cucumber planted. I really love how everything come out. 
 
 Those are what I have for the year:
-* Camomile, well, they appear like weed from seeds last fall, and I am asked to clean them out
+* Camomile, well, they appear everywhere like weeds from seeds last fall, and I am asked to clean them out
 * Cilantro (volunteers again)
 * Garlic chives
 * Green onions
@@ -24,11 +24,12 @@ Those are what I have for the year:
 * Baby bok choy (struggle to fight with flee bettles)
 * Edemame bean
 * Bean
-* ___ Spinach
-* Lettuce 
-* Snow pea and __pea 
+* Perpetual Spinach
+* Romaine Lettuce
+* Sunflower (100% germination rate given the fact the seeds were from 2020)
+* Snow pea and homesteader pea 
 
-Ah, I am more ambitious than I thought I am. I will be having 10+ tomatos this year again but sadly I probably missed out the type I would eat the most (which I make dishes out of). 
+Wow, I am more ambitious than I thought I am. I will be having 10+ tomatos this year again but sadly I probably missed out the type I would eat the most (which I make dishes out of). 
 
 ### Strawberry 
 
