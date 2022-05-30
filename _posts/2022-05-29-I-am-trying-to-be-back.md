@@ -1,4 +1,4 @@
-Now it's May of the year again, I finally realize why last year's May was a complete white off (no post for the entire month). It is (was) because I am (was) busy planting. I am busy planting this month again, there is so much happening right now, and so much to do. It's just so hard to balance doing work with finding time to sit down and share the work. But by writing this post now, I am proud to say "I made it!". 
+Now it's May of the year again, I finally realize why last year's May was a complete white off (no post for the entire month). It is (was) because I am (was) busy planting. There is so much happening right now, and so much to do. It's just so hard to balance doing work with finding time to sit down and share the work. But by writing this post now, I am proud to say "I made it!". 
 
 This year is even busier for me on top of everthing else, as the Horticulture club I am involving (it's a student union I have been part of since my undergarates and I am still with them now) is resuming and we are planting at both the horticulture field and the roof top graden on campus. Thanks to the restrction lifting!
 
