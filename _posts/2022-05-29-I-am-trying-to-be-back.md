@@ -1,10 +1,10 @@
 Now it's May of the year again, I finally realize why last year's May was a complete white off (no post for the entire month). It is (was) because I am (was) busy planting. There is so much happening right now, and so much to do. It's just so hard to balance doing work with finding time to sit down and share the work. But by writing this post now, I am proud to say "I made it!". 
 
-This year is even busier for me on top of everthing else, as the Horticulture Club I am involving (it's a student union I have been part of since my undergarates and I am still with them now) is resuming and we are planting at both the horticulture field and the roof top graden on campus. Thanks to the restrction lifting!
+This year is even busier for me on top of everthing else, as the Horticulture Club I am involving (it's a student union I have been part of since my undergarates and I am still with them now) is resuming and we are planting at both the horticulture field and the rooftop garden on campus. Thanks to the restriction lifting!
 
 Ok, let's focus on talking about my plot:
 
-I am being a bit less gung ho this year in terms of what to plant and how to plant in my plot. But still, by yesterday, I have everthing other than cucumber planted. I really love how everything come out. 
+I am being a bit less gung ho this year in terms of what to plant and how to plant in my plot. But still, by yesterday, I have everything other than cucumber planted. I really love how everything come out. 
 
 Those are what I have for the year:
 * Camomile, well, they appear like weed from seeds last fall, and I am asked to clean them out
@@ -21,7 +21,7 @@ Those are what I have for the year:
 * Cosmos (from transplant, already in bloom)
 * Edemame bean
 * Bean
-* Spinach
+* ___ Spinach
 * Lettuce 
 * Snow pea and __pea 
 
@@ -40,4 +40,8 @@ I got these babie tomato seedlings from Horticulture Club from what left after w
 
 According to the production description, zebra green has tart flavor, good for salad or sandwitch. It's look and flavor really reminds me of the tomatillos. I guess it might not be the best fit for my diet, but well worth to try out. 
 
+### ___ Spinach
 
+I almost dug them out as weed :cry: thank to this one who comes out with seed husk still attached, which helped me to ID its (and its buddies) identity. 
+
+![spinach](https://user-images.githubusercontent.com/79727789/170899478-4971df2c-8f51-48f9-91ef-5952d168a29e.jpg)
