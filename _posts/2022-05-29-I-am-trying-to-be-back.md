@@ -19,6 +19,7 @@ Those are what I have for the year:
 * Tumbler tomato x3
 * Jalapeno pepper x3
 * Cosmos (from transplant, already in bloom)
+* Baby bok choy (struggle to fight with flee bettles)
 * Edemame bean
 * Bean
 * ___ Spinach
