@@ -23,7 +23,7 @@ Those are what I have for the year:
 * Cosmos (from transplant, already in bloom)
 * Baby bok choy (struggle to fight with flee bettles)
 * Edemame bean
-* Bean
+* Bean (improved golden wax)
 * Perpetual Spinach
 * Romaine Lettuce
 * Sunflower (100% germination rate given the fact the seeds were from 2020)
@@ -37,14 +37,14 @@ After two year, my strawberry are slowly occupying way more space than they supp
 They are producing a lot more blooms than last year due to the fact that they are expanding, so I am hoping more flowers = more 🍓 
 ![strawberry](https://user-images.githubusercontent.com/79727789/170897875-186f0e1c-5405-4329-ab57-0c7507e44cba.jpg)
 
-### Zebra green tomato
+### Zebra Green Tomato
 
 I got these babie tomato seedlings from Horticulture Club from what left after we planted the roof top garden. It's a new cultivar to me, and I am always happy to try out new crops (grow +taste). The photo on right is how the fruits would look, the photo is downloaded from here [Zebre tomato](https://www.growjoy.com/store/pc/Green-Zebra-Tomato-Plant-p9078.htm)
 ![zebra-green](https://user-images.githubusercontent.com/79727789/170898380-7d60abb8-1b8c-4f7f-9f7d-a25f89b56145.jpg)
 
 According to the production description, zebra green has tart flavor, good for salad or sandwitch. It's look and flavor really reminds me of the tomatillos. I guess it might not be the best fit for my diet, but well worth to try out. 
 
-### ___ Spinach
+### Perpetual Spinach
 
 I almost dug them out as weed :cry: thank to this one who comes out with seed husk still attached, which helped me to ID its (and its buddies) identity. 
 
