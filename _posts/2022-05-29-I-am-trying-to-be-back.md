@@ -27,7 +27,7 @@ Those are what I have for the year:
 
 Ah, I am more ambitious than I thought I am.  
 
-###Strawberry 
+### Strawberry 
 
 After two year, my strawberry are slowly occupying way more space than they suppose to take. I have at least dug 35 plants out earlier in the season. I guess they are June bearing berry, as they stop producing by July 1st sharp last year.
 They are producing a lot more blooms than last year due to the fact that they are expanding, so I am hoping more flowers = more 🍓 
