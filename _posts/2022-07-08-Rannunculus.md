@@ -15,4 +15,7 @@ I only brought one of them home to put in vase, for the rest, I just hope them t
 
 They go wild this year.
 
-Cannot remember how much fruit I harvest this year exactly, but here is the math: I had my first berry on June 16, then, since June 22, I have at least had 7 times ~250gram harvest, that's about 4lbs of starberry!   
+Cannot remember how much fruit I have harvested this year exactly, but here is the approximate math: I had my first berry on June 16, then, since June 22, I have at least had 7 times ~250gram harvest, that's about 4lbs of berries so far! It's now slowly wrapping up for the year, which still gives me a handful of fruits each day.  
+
+![WechatIMG233](https://user-images.githubusercontent.com/79727789/178087986-03c369a6-d4e4-404c-9379-7cae3397340e.jpg)
+![WechatIMG235](https://user-images.githubusercontent.com/79727789/178087988-df737cf2-5a2d-4a62-9c54-93d5810808d4.jpg)
