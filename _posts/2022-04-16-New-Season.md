@@ -6,10 +6,10 @@ I was in my plot yesterday and happy to ssee both my onion multiplier and strawb
 
 ![pioneer](https://user-images.githubusercontent.com/79727789/163698386-39cae73e-2fee-4c07-8a6d-a87963e5163c.png)
 
-## Rannunculus
+## Ranunculus
 I'd like to try new crops each year, especially flowers. So here are my experience with rannunculus: 
 
-I bought two types of rannuculus corms (seed), one from a dollar tree store, costs only $1.25 for 4 corms. I experimented with the dollar tree corms on March 26 with great success, the germinate rate was 11/12. The fastest corm had roots came out within less than 72 hours. 
+I bought two types of ranuculus corms (seed), one from a dollar tree store, costs only $1.25 for 4 corms. I experimented with the dollar tree corms on March 26 with great success, the germinate rate was 11/12. The fastest corm had roots came out within less than 72 hours. 
 
 
 ![ranunculus](https://user-images.githubusercontent.com/79727789/163698665-ace82a64-4452-4246-8504-72a50ae679f7.png)
