@@ -17,5 +17,5 @@ If you followed my previous post you would have heard my story with this those n
 
 ### Peas
 ![WechatIMG247](https://user-images.githubusercontent.com/79727789/179889241-0a4cbc2b-3436-40c5-a40b-ebbea0ebc314.jpeg)
-* Snow pea 
+**Snow pea**
 I have planted both homesteader pea and snow pea this year. But I kind of having them mixed together and go a bit confused which is which. Today I finally figure out that mature snow peas have wider and flater pods than the homesteader peas. 
