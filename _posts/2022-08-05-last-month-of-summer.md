@@ -23,5 +23,5 @@ Again, I harvested lots of my yellow bean a bit later than ideal (which was last
 
 ### Cucumber 
 ![WechatIMG251](https://user-images.githubusercontent.com/79727789/183122287-e0c4b0a7-f5ba-4f35-93c3-08c178670e96.jpg)
-My cucumber isn't doing well this year for so many reasons. First, we are not having a lot of heat in general this year. Second, they are shaded by over grow purple potato (not sure what's going on with this potato cultivar, it's almost three months by now since I planted them, they are still very immaure!), my neighbour's corn + tall sunflower. We finally put some poles for them to climb last night, hopefully, this would help. Will have another update in a week or two. 
+My cucumber isn't doing well this year for so many reasons. First, we are not having a lot of heat in general this year. Second, they are shaded by over grow purple potato (not sure what's going on with this potato cultivar, it's almost three months by now since I planted them, they are still very immaure!), my neighbour's corns + tall sunflowers. We finally put some poles for them to climb last night, hopefully, this would help. Will have another update in a week or two. 
 
