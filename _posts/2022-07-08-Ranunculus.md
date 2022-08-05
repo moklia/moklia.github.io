@@ -1,4 +1,4 @@
-## Ranunculus
+### Ranunculus
 Ranunculus must be the title of today's post, because, they are finally IN BLOOM!!
 
 Those are all the ranunculus related photos I obtained in the past two weeks, they all just made my heart so happy! The process of how I got the ranunculus started was fully docmented in my first post this year, click here to read it -> [New Season](https://moklia.github.io/2022/04/16/New-Season.html)
@@ -9,10 +9,11 @@ Those are all the ranunculus related photos I obtained in the past two weeks, th
 * The slightly lighter pink one on top is the bloom from the expensive corm. 
 ![ranunculus2](https://user-images.githubusercontent.com/79727789/178087187-397b091d-81f0-4535-98c3-3d3e1b07dda7.jpg)
 
+### A basket of hapiness
 ![Rannunculus4](https://user-images.githubusercontent.com/79727789/178087183-afa1f7b8-c404-460d-a5d2-97c446b46991.jpg)
 I only brought one of them home to put in a vase, for the rest, I just hope they keep staying in the garden to enjoy the light anf rain. They are so graceful beings, they look just like the expensive fresh cut flower you find in flower shop. I had a gardener praise them，she said "they are almost like artifical flowers".
 
-## Strawberry
+### Strawberry
 
 They go wild this year.
 
