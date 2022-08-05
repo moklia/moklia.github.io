@@ -13,7 +13,7 @@ I don't have a picture for them, unfortunately. Also, I harvested them a bit too
 ### Sunflower 
 ![WechatIMG249](https://user-images.githubusercontent.com/79727789/183120214-3e9e66a2-ab01-46f7-976b-693d71ea3f78.jpg)
 
-I practiced direct seeding for my sunflower this year, so they are slower than the previous two years. But it turned out well, and very pollinator attracting. I don't really enjoy this cultivar's seeds that much to be honest, I guess because they are too small, but I enjoy it as a flower. A very summer flower.
+I practiced direct seeding for my editable sunflower this year, so they are slower than the previous two years. But it turned out well, and very pollinator attracting. I don't really enjoy this cultivar's seeds that much to be honest, I guess because they are too small, but I enjoy it as a flower. A very summer flower.
 
 ### Yellow bean
 ![WechatIMG252](https://user-images.githubusercontent.com/79727789/183120908-778ae3a9-91e1-4c90-8d3c-086e8a10745d.jpg)
