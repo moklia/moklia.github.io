@@ -2,7 +2,7 @@
 Ranunculus must be the title of today's post, because, they are finally IN BLOOM!!
 
 Those are all the ranunculus related photos I obtained in the past two weeks, they all just made my heart so happy! The process of how I got the ranunculus started was fully docmented in my first post this year, click here to read it -> [New Season](https://moklia.github.io/2022/04/16/New-Season.html)
-**On a gloomy day**
+
 ![Rannunculus3](https://user-images.githubusercontent.com/79727789/178087180-0875a4b0-e354-4275-8fb3-331b5047916e.jpg)
 **On a sunny day**
 ![ranunculus](https://user-images.githubusercontent.com/79727789/178087185-391750d0-99c3-4486-b770-9beadcd5adb0.jpg)
