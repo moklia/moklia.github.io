@@ -18,7 +18,7 @@ I practiced direct seeding for my editable sunflower this year, so they are slow
 ### Yellow bean
 ![WechatIMG252](https://user-images.githubusercontent.com/79727789/183120908-778ae3a9-91e1-4c90-8d3c-086e8a10745d.jpg)
 
-Again, I harvest lots of my yellow bean a bit later than ideal (which was last night, August 4, not the ones in this image). I didn't grow beans for so many years was because I was worried about they only allow one big harvest at a time. But turns out this isn't the case. They ripen gradually over the last two weeks, and there are more coming along the way as well. Yellow bean was the bush type I picked didn't even require too much space. Personally, I think bush beans are even better than peas as they first don't take too much space; second, they don't require any trells to support their tall grow habit; thirdly, they are very effective, as the ratio between ____
+Again, I harvested lots of my yellow bean a bit later than ideal (which was last night, August 4, not the ones in this image). I didn't grow beans for so many years was because I was worried about they only allow one big harvest at a time. But turns out this isn't the case. They ripen gradually over the last two weeks, and there are more coming along the way as well. Yellow bean was the bush type I picked didn't even require too much space. Personally, I think bush beans are even better than peas as they first don't take too much space; second, they don't require any trells to support their tall grow habit; thirdly, they are very effective, as the ratio between ____
 
 
 ### Cucumber 
