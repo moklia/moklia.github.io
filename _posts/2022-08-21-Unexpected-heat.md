@@ -13,4 +13,4 @@ From left to right, these are Black Krim, Juilet, and Green Zebra respectively.
 
 ![WechatIMG260](https://user-images.githubusercontent.com/79727789/185803679-9e510d90-60eb-480f-b3f3-20e02137f5ca.jpg)
 
-I have to show these two pictures, full of veggies. Veggies in the picture are mainly from my garden, but with lots of them gifted to me by the other gardeners. In the meantime, I also share mine with the other gardeners when I can. I call that a win win exchange. 
+I have to show these two baskets. Veggies in them are mainly from my garden plot, with also some of them gifted to me by the other gardeners. So I get to try the purple beans, which I love love them. Although the purple color disappear during the cooking, I can defentely tell the difference of the purples to the greenones from the texture fIn the meantime, I also share mine with the other gardeners when I can. 
