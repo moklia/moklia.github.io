@@ -9,7 +9,7 @@ Without further ado, these are what I got from the garden this morning
 ### Green zebra tomato
 
 I finally have a vine ripen green zebra to show off.
-![WechatIMG265](https://user-images.githubusercontent.com/79727789/192166167-29abe966-a71e-4da8-aec8-0016f3625857.jpg)
+![WechatIMG267](https://user-images.githubusercontent.com/79727789/192166632-dda926c1-6ea4-4deb-b482-ba7998572d69.jpg)
 
 ### A basket of fall view
 ![WechatIMG266](https://user-images.githubusercontent.com/79727789/192166169-ec16c9cf-ef74-48df-b541-f75c5abe11ae.jpg)
