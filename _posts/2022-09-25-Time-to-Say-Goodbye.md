@@ -1,6 +1,6 @@
 It sounds like a big progress that I am still in the mood of updating when it's September 25th. 
 
-There isn't yet any devastating froest in my area so I still let tomatos grow happily in the field. But I feel more comfortable to let things go this year compared to the previous two years, which is also a big progress. That means I am also enjoy the other aspects of lives after all these covid monthes.
+There isn't yet any devastating froest in my area so I still let tomatos grow happily in the field. But I feel more comfortable to let things go this year compared to the previous two years, which is also a big progress. That means I am also enjoy the other aspects of my life after all these covid monthes.
 
 Also I have to admit, we are getting lucky again this year in terms of the time of the frost. We have had about 3 nights that my phone received frost alert. Luckily, all these three nights only got to 0 degree for about an hour at 6am, so none of it caused any damage. I am also feeling proud for not overreact to get things covered as in the previous years lol. 
 
